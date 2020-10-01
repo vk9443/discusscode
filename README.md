@@ -1,1 +1,2 @@
 # discusscode
+# WE START LEARNIG FROM BASIC LEVEL.
